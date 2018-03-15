@@ -1,0 +1,7 @@
+---
+title:  Koncert Noworoczny dla maluszków i nie tylko
+categories: Artukul
+nr: 4
+picture: Koncert
+---
+Zorganizowany na początku tego roku przez gimnazjalistów i  klasę dyplomatyczną 2H Koncert Noworoczny zgromadził liczną publiczność: rodziców, rodzeństwo, profesorów z pociechami. Koncert ten nazywany jest małym koncertem charytatywnym i zgromadzone na nim fundusze służą najbardziej potrzebującym. Oprócz występów na scenie w świetlicy w całej szkole miały miejsce atrakcje dla dzieci, takie jak malowanie twarzy, gry i zabawy sportowe, lepienie z masy solnej, tańce i wiele innych. Bogaty program artystyczny uświetnił wydarzenie – od  występów muzycznych przez inscenizacje teatralne po taniec towarzyski. Gimnazjaliści przedstawili dwie bajki – Jasia i Małgosię oraz Kota w butach. Koncert rozpoczęły kolędy wykonane w tradycyjnym i nie tylko stylu. Publiczność miała okazję zobaczyć walca, cha-chę, rumbę i jive'a w profesjonalnym wykonaniu Oliwii – mistrzyni Opolszczyzny w tańcu towarzyskim. Repertuar muzyczny obejmował utwory Vivaldiego i Piazzoli, ale także Edith Piaf i współczesnych wykonawców. Zaprezentowały się również dwa uczniowskie zespoły rockowe. Dla młodszych uczestników Koncertu przygotowane były konkursy z nagrodami. Goście mieli również możliwość skorzystania z poczęstunku złożonego z ciast przygotowanych przez gimnazjalistów i aromatycznej herbaty i kawy. Całe wydarzenie odbyło się w ciepłej, rodzinnej atmosferze. Dziękujemy wszystkim zaangażowanym!

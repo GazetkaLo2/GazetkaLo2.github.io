@@ -1,0 +1,11 @@
+---
+title:  GÓRY, TANIEC, GRA MIEJSKA – opolska Dwójka w Głuchołazach
+categories: Artukul
+nr: 4
+---
+Ponad 200 uczniów i nauczycieli z opolskiej Dwójki spędziło cztery wrześniowe dni w Głuchołazach na wyjeździe integracyjnym klas pierwszych. Przygotowanie wyjazdu dla aż ośmiu klas pierwszych Publicznego Liceum Ogólnokształcącego nr II w Opolu to wyzwanie logistyczne i organizacyjne na dużą skalę, stanowi jednak nieodzowny element życia szkoły. W tym roku szkolnym nie mogło być inaczej.
+Pobyt pierwszaków w Głuchołazach to cztery dni obfitujące w aktywności wszelkiego typu – począwszy od wyprawy w góry i biegu na orientację po mieście przez zajęcia sportowe, taniec, strzelanie z łuku i z wiatrówki po spotkania warsztatowe z psychologii, doradztwa zawodowego i pierwszej pomocy. 
+Świeżo upieczeni licealiści przygotowywali się też do turnieju klas pierwszych, w którym stawką jest zdobycie sporego dofinansowania do wycieczki klasowej. W tym roku do zadań należało m.in. przygotowanie klasowego układu tanecznego, zdjęcia prezentującego profil klasy i wideoklipu w formie lipduba ze wszystkimi uczniami klasy. Pomysłowość uczniów w wykonywaniu zadań zawsze zaskakuje – spotkać można było uczniów w dziwnych przebraniach, z tajemniczymi rekwizytami w dłoniach, a nawet próbujących zachęcić do pozowania do zdjęcia zamieszkujące głuchołaski ośrodek zwierzęta (to uczniowie z profilu biologicznego).
+Nie zabrakło czasu na integrację przy muzyce, tańcu i ogniskach. 
+Gwoździem czterodniowego programu i podsumowaniem wycieczki była wieczorna gra miejska na terenie miasta Głuchołazy. Ze wskazówkami w ręku licealiści wyruszali w miasto, by przy kolejnych stacjach wykonywać zadania potwierdzające, że w czasie wycieczki poznali się lepiej jako klasa: tańczyli belgijkę bez podkładu muzycznego, śpiewali a cappella znane polskie przeboje, odpowiadali na pytania dotyczące kolegów i koleżanek z klasy. Poszło dobrze i uczniowie wszystkich klas zakończyli z sukcesem grę miejską, wykonując zadanie finałowe, przygotowane przez oczekującego ich na mecie Dyrektora Dwójki, pana Aleksandra Iszczuka.
+Uroczyste zwieńczenie wyjazdu integracyjnego i pierwszego miesiąca w nowej szkole już wkrótce, na ślubowaniu uczniów klas pierwszych 12 października. Wtedy też odbędą się ostatnie zadania z turnieju klas pierwszych. Walka o zwycięstwo zapowiada się bardzo wyrównana.

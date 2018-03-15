@@ -1,0 +1,7 @@
+---
+title:  Debiut literacki naszej absolwentki 
+categories: Artukul
+nr: 4
+---
+Narzeczony, który być może wcale nie istnieje; kot – nie wiadomo czy martwy, czy żywy; smuga szpitalnej codzienności, po której ślizga się świadomość głównej bohaterki. Oto zarys opowiadania pt. „Schizein”, za które Marzena Wójcik, tegoroczna absolwentka Publicznego Liceum Ogólnokształcącego nr II w Opolu, została wyróżniona w ogólnopolskim Konkursie Literackim im. Tadeusza Konwickiego. Konkurs, organizowany przez warszawski oddział Stowarzyszenia Pisarzy Polskich, ma na celu wyłonienie talentów literackich i promocję sztuki dobrego pisania wśród uczniów szkół ponadgimnazjalnych. Laureaci wspierani są w rozwoju dalszej kariery literackiej – otrzymują prawo do publikacji nagrodzonego debiutu literackiego na łamach kwartalnika Stowarzyszenia Pisarzy Polskich „Podgląd”.<br><br>
+Literacki debiut Marzeny to nie jej pierwszy sukces. W ubiegłym roku zdobyła pierwsze miejsce w Ogólnopolskim Przeglądzie Twórczości Poetyckiej im. Jacka Kaczmarskiego „Rytmy nieskończoności” w kategorii prozy poetyckiej. Literackiemu rozwojowi Marzeny towarzyszył rozwój naukowy – w liceum próbowała swoich sił w olimpiadzie filozoficznej, interesuje się też antropologią, neurobiologią i historią sztuki. W związku z tak szerokim obszarem zainteresowań w październiku tego roku rozpoczęła studia na interdyscyplinarnym kierunku humanistycznym MISH na Uniwersytecie Jagiellońskim (Międzywydziałowe Indywidualne Studia Humanistyczne).

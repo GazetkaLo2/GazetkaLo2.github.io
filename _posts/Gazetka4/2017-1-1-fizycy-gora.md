@@ -1,0 +1,29 @@
+---
+title:  Fizycy górą!
+categories: Artukul
+nr: 4
+picture: fizycy
+---
+Dwóch braci o wspólnej pasji, dwa niespotykane talenty, jedenaście miesięcy wytężonej pracy i jeden wielki sukces – wygrana w Międzynarodowym Turnieju Młodych Fizyków w Singapurze. 
+Ile trzeba poświęcić, by zrealizować cel? O to warto zapytać Filipa i Michała Kubackich – na pierwszy rzut oka zwykłych nastolatków, uczniów PLO nr 2 w Opolu.<br><br>
+Zacznijmy od początku. Skąd wziął się pomysł dołączenia do Klubu Naukowego Fenix? Jak się tam znaleźliście? .<br><br>
+F: Już od gimnazjum interesowała nas fizyka, przede wszystkim złożoność poszczególnych działów, wielowymiarowość i to, że wszystko, dosłownie wszystko, składa się w jedną, niesamowicie logiczną całość. Rodzice wiedzieli o naszej pasji i wspierali nas. To właśnie dzięki nim dowiedzieliśmy się o istnieniu w Polsce Turnieju Młodych Fizyków. Jednego dnia, tato wszedł, jak gdyby nigdy nic do mojego pokoju i rzucił parę słów o interesującej audycji, którą usłyszał w radiu. Dotyczyła ona badania stanów krystalicznych czekolady i dźwięków przez nią wydawanych, a więc skupiała się na ściśle życiowych tematach ugryzionych z zupełnie innej strony. To od razu do mnie przemówiło. .<br><br>
+A więc przez żołądek do serca? .<br><br>
+M: Dokładnie. Cała formuła turnieju wygląda w podobny sposób – nie wprowadza żadnych ograniczeń odnośnie zakresu badań, żadne z zadań nie ma jednego konkretnego rozwiązania i to od nas zależy, w jak zaawansowany sposób chcemy podejść do zagadnienia. .<br><br>
+F: Co więcej, zakres materiału wykracza poza podstawę programową liceum, która najzwyczajniej zaczęła nas w pewnym momencie nudzić. Potrzebowaliśmy nowych doznań, wyzwań, czegoś nieszablonowego, wyjścia poza sztywne ramy.. .<br><br>
+To znaczy, że wzięliście udział w Turnieju bez konsultacji z jakimkolwiek nauczycielem, całkowicie niezależnie? .<br><br>
+F: Zgadza się. Żaden nauczyciel nie posiadał wcześniejszego doświadczenia z konkursem, dlatego stwierdziliśmy, ze najlepiej będzie zwrócić się do prawdziwych ekspertów w tej dziedzinie – członków Klubu Naukowego Fenix. .<br><br>
+W jaki sposób dostaliście się do KNF? Musieliście przejść coś w rodzaju eliminacji? .<br><br>
+M: Eliminacji jako takich nie było. Do klubu de facto może należeć każdy, jednakże nie każdy jest w stanie wytrzymać narzucane tempo pracy, łączące się z uciążliwymi dojazdami do Warszawy – tam znajduje się siedziba klubu. Ostateczny skład drużyny wykrystalizował się z czasem; pozostali w niej najbardziej zdeterminowani i sumienni uczestnicy. .<br><br>
+Jak w takim razie wyglądają wasze spotkania? ? .<br><br>
+F: Zacznijmy może od tego, jak dokładnie wygląda samo miejsce, w którym znajduje się klub. Są to dwa pomieszczenia – jedno przeznaczone teoretycznie do ćwiczenia prezentacji, chociaż było ono jednocześnie nasza sypialnią, kuchnią, jadalnią, garażem i salą konferencyjną; a drugie – zapleczem technicznym, w którym trzymaliśmy cały potrzebny sprzęt. .<br><br>
+M: Jeśli chodzi o sam przebieg spotkań, wyglądało to głównie w ten sposób, że my, czyli uczniowie, sami musieliśmy mobilizować się do pracy nad zadaniami, przeprowadzać pomiary, przygotowywać prezentacje i formułować wnioski. Liderzy klubu monitorowali nasze działania, sugerowali możliwe rozwiązania problemów, służyli dobrą rada i zupką chińską w okresach klęski głodowej po wielogodzinnej pracy. .<br><br>
+Jak wiele czasu musieliście poświęcić na przygotowanie do konkursu? Czy potrafiliście znaleźć odpowiednio dużo czasu na szkole, życie towarzyskie i rodzinne? .<br><br>
+F: Niestety, wszystkie uroki nastoletniego życia musiały chwilowo zostać zepchnięte na dalszy plan. Fizyka pochłonęła nas całkowicie. Bycie członkiem drużyny Fenix nierozerwalnie związane jest z brakiem wolnego czasu, całkowitym oddaniem się turniejowi i niekończącą się nieobecnością w domu i w szkole. Ominęło nas wiele sprawdzianów, kartkówek, ale też imprez, uroczystości szkolnych czy rodzinnych. Kontakt utrzymywaliśmy tylko z najbliższymi i najbardziej wyrozumiałymi osobami, które zostały wtajemniczone w wygląd naszej pracy. .<br><br>
+A godzinowo? Jako zapaleni statystycy na pewno obliczyliście, ile czasu spędziliście nad zadankami. .<br><br>
+M: Nie sadzę, żeby ludzie w ogóle uwierzyli w tak ogromne liczby, ale przez te jedenaście miesięcy, średnio 6-7 godzin dziennie spędzaliśmy nad fizyką. Nie znaczy to jednak, że codziennie pracowaliśmy nad zadaniami. Przez to, że nie byliśmy cały czas w Warszawie, nasza praca nabierała znacznej intensyfikacji, kiedy już do stolicy przyjeżdżaliśmy. Zdarzały się okresy 30-godzinnej, nieprzerwanej pracy, zarwane noce stały się rutyną, nabyliśmy stosunkowo rzadką umiejętność spania na szkolnych krzesłach, na stojąco…  .<br><br>
+F: A na sprawdziany uczyliśmy się wszędzie – w pociągu, w autobusie, w tramwaju, w metrze, w dzień i w nocy, niejednokrotnie na pięć minut przed lekcją. Było... ciężko. .<br><br>
+Czy z obecnej perspektywy, czas poświęcony turniejowi był wart wszystkich wyrzeczeń? Gdybyście mieli ponownie przystąpić do takiego konkursu, wiedząc już, ile pracy was czeka, zrobilibyście to? .<br><br>
+F: Biorąc pod uwagę wszystkie nowo nabyte umiejętności, doświadczenie, wiedzę i to, ile świata dzięki turniejowi było nam dane zobaczyć oraz jak wiele drzwi stoi teraz dla nas otworem, można stwierdzić, że było warto. Jestem pewien, że trud włożony w konkurs zaprocentuje w przyszłości, jeśli nie na gruncie stricte fizycznym, to na innych płaszczyznach życia codziennego. .<br><br>
+M: Trzeba pamiętać, że na turnieju się nie kończy, Zaryzykuję nawet stwierdzenie, że było to dopiero wprowadzenie do ogromnego świata nauki, jak i zapowiedź czekających na nas dalszych wyzwań. Dla osób ciekawych i szukających nowych doznań, turniej jest przepustką do nieograniczonej i fascynującej rzeczywistości, z której istnienia często nie zdajemy sobie sprawy!
+
