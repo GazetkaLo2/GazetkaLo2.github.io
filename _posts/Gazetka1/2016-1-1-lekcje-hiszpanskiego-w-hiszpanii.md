@@ -2,7 +2,7 @@
 title:  Lekcje hiszpanskiego w Hiszpanii
 categories: Artukul
 nr: 1
-picture: hiszp
+picture: hiszp1
 ---
  Grupa ośmiu maturzystów uczących się języka hiszpańskiego na poziomie rozszerzonym pojechała na obóz językowo-kulturowy do Salamanki w Hiszpanii. Uczniowie spędzili tam tydzień, od 26 września do 3 października pod opieką pani Anny Andrzejewskiej. <br><br>
 
