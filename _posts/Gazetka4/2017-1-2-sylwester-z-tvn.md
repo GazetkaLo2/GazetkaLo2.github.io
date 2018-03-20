@@ -1,0 +1,7 @@
+---
+title:  Sylwester z TVN - uczennica Dwójki oraz najgorętsze gwiazdy polskiej muzyki
+categories: Artukul
+nr: 4
+picture: tancerka
+---
+Ścieżka prowadząca do występów na największych scenach w Polsce dla Julii Waszkiewicz, uczennicy Dwójki, została wytyczona już w przedszkolu, bo wtedy rozpoczęła się jej przygoda z tańcem. Zaczynała od tańca towarzyskiego, który po 5 latach zamieniła na nowe wyzwania z zespołem PECH w Opolu, owocujące wieloma sukcesami na czele z mistrzostwem Polski i to w dwóch kategiach (solo oraz duet) w 2014 roku. Doświadczenie taneczne Julia zdobywała także na warsztatach w całej Polsce, później Europie, aż w końcu udało jej się dostać do najpopularniejszej szkoły tanecznej na świecie, czyli na nowojorski Broadway Dance Center! Prawdziwy przełom nastąpił jednak, gdy przeszła casting do TV Project (2015-2017) w Warszawie u Augustina Egurroli. Będąc wtedy w pierwszej klasie liceum, poświęciła wszystko, by kontynuować przygodę z tańcem. Efektem był udział w programach takich jak ‘Jaka to melodia’, ‘Taniec z Gwiazdami’ oraz wielu innych. Tegoryczny sylwester był drugim, w którym Julia miała szansę wraz z grupą VOLT zatańczyć dla kilkumilionowej widowni zebranej w Warszawie oraz przed telewizorami. Pomimo  poświęceń, wielotygodniowej pracy nad choreografią, połączonych z intensywną nauką do tegocznej matury, dla Julii taniec jest źródłem wpaniałej energii, a entuzjastycznie reagująca publiczność największą nagrodą za lata wyrzeczeń.

@@ -1,5 +1,5 @@
 ---
-title:  Uroczystość wręczenia stypendiów premiera w oprawie w wykonaniu Dwójkowiczów premiera w oprawie w wykonaniu Dwójkowiczów
+title:  Uroczystość wręczenia stypendiów premiera w oprawie Dwójkowiczów 
 categories: Artukul
 nr: 4
 picture: stypendia

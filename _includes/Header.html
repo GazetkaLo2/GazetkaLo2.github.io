@@ -11,7 +11,7 @@
 		<div class="col-xs-12 col-md-6">
 			<div class="text-right">
 			{% if page.nr != nill %}<h4>Numer {{page.nr}}/20{{ page.date | date: '%y' }}</h4>{%endif%}
-			{% if page.issue != nill %}<h4>Numer {{page.issue}}/20{{ page.date | date: '%y' }}</h4>{%endif%}
+			{% if page.issue != nill %}<h4>Numer {{page.issue}}/20{{ page.date | date: '%y' }}-{{ page.date | date: '%y' | plus:1 }}</h4>{%endif%}
 		</div>
 		</div>
 	</div>
